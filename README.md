@@ -1,5 +1,5 @@
 # github-collaboration
+# qoute
 
-# Hello I am poorani.,
-how you guys are doing ??
-hope erveryone is good??
+the only qoute i know 😂😂
+when there is a will there is a way

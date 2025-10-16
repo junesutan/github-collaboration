@@ -1,5 +1,6 @@
 # github-collaboration
-# qoute
+# quote
 
-the only qoute i know 😂😂
-when there is a will there is a way
+the only quote i know 😂😂 
+
+- when there is a will there is a way
